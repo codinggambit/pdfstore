@@ -1,1 +1,1 @@
-Coursera Certificates
+Coursera Certifications
